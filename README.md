@@ -2,8 +2,6 @@
 
 ## → **[Browse All Edgenuity Answers](https://revolt.ly/answers)**
 
-https://cdn.discordapp.com/attachments/1490071982384087130/1501580003928834119/IMG_3828.png?ex=69fc96da&is=69fb455a&hm=49a7447fb3ea2492a6541916e9edcd532a0c5e460113200b8ca0e9c9fa9920fa&
-
 ---
 
 ## Edgenuity hacks 
