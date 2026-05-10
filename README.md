@@ -6,10 +6,6 @@
 
 ## Edgenuity hacks 
 
-
-[showcase.webm](https://github.com/user-attachments/assets/ff9f1695-4e93-4cb3-bc7b-0a7f9a15ddaa)
-
-
 [**10,000+ Users • 1,000+ Reviews**](https://www.trustpilot.com/review/revolt.ly?stars=5)
 
 * 🎯 **100% accurate answers**
