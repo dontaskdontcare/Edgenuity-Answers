@@ -1,7 +1,7 @@
 ## Revolt ALL Edgenuity Answers 🚀
 
 ## → **[Browse All Edgenuity Answers](https://revolt.ly/answers)**
-
+<img width="1920" height="1048" alt="Screenshot From 2026-05-10 23-41-27" src="https://github.com/user-attachments/assets/4f503f9d-8c55-4e3e-8ab9-07ff5dd83dfe" />
 ---
 
 ## Edgenuity hacks 
