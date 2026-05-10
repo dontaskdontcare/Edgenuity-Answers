@@ -6,6 +6,8 @@
 
 ## Edgenuity hacks 
 
+https://github.com/user-attachments/assets/24b9f9f9-a477-45a8-afc5-3bc853fd67da
+
 [**10,000+ Users • 1,000+ Reviews**](https://www.trustpilot.com/review/revolt.ly?stars=5)
 
 * 🎯 **100% accurate answers**
