@@ -1,6 +1,6 @@
 ## Revolt ALL Edgenuity Answers 🚀
 
-## → **[TRY HACKS FREE]((https://discord.gg/MKYzRCneDz))**
+## → **[TRY HACKS FREE](https://discord.gg/MKYzRCneDz)**
 
 <img width="800" height="450" alt="revoltshowcase" src="https://github.com/user-attachments/assets/fc208924-c2d7-4adf-842b-3a3b76bf0621" />
 
