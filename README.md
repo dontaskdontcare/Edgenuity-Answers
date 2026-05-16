@@ -39,9 +39,8 @@
 
 <img width="1916" height="1050" alt="image" src="https://github.com/user-attachments/assets/e4192502-b726-4d74-84a1-9862f134575c" />
 
-### **Install Tampermonkey**  
-[https://chrome.google.com/webstore/detail/tampermonkey/dhdgffkkebhmkfjojejmpbldmpobfkfo](https://chrome.google.com/webstore/detail/tampermonkey/dhdgffkkebhmkfjojejmpbldmpobfkfo)
-
+[### **Install Tampermonkey**  
+](https://chrome.google.com/webstore/detail/tampermonkey/dhdgffkkebhmkfjojejmpbldmpobfkfo)
 ![Tampermonkey](https://github.com/user-attachments/assets/70fb1599-917a-4577-9edd-862e00b1b777)
 
 ### **Enable it**
