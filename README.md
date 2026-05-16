@@ -1,5 +1,9 @@
 ## Revolt ALL Edgenuity Answers 🚀
 
+## → **[TRY HACKS FREE]((https://discord.gg/MKYzRCneDz))**
+
+<img width="800" height="450" alt="revoltshowcase" src="https://github.com/user-attachments/assets/fc208924-c2d7-4adf-842b-3a3b76bf0621" />
+
 ## → **[Browse All Edgenuity Answers](https://revolt.ly/answers)**
 <img width="1920" height="1048" alt="Screenshot From 2026-05-10 23-41-27" src="https://github.com/user-attachments/assets/4f503f9d-8c55-4e3e-8ab9-07ff5dd83dfe" />
 ---
